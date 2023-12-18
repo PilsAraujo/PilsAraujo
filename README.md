@@ -6,5 +6,4 @@
 - 💬 Me pergunte sobre joguinhos 
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/paula-araujop/)
 - 😄 Pronomes: Ela/Dela
-- ⚡ Fun fact: Não sei arrotar 
 
